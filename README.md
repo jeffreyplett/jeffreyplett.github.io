@@ -1,1 +1,0 @@
-# jeffreyplett.github.io
